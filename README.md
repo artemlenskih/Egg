@@ -1,1 +1,1 @@
-<img src="(https://media1.tenor.com/m/JFB_ug8tOhsAAAAd/satam-robotnik-sonic.gif)" width="400">
+<img src="[(https://tenor.com/ru/view/evil-grin-robotnik-eggman-sonic-adventures-of-sonic-gif-26805661)" width="400">
